@@ -1,3 +1,7 @@
+
+
+support mail:doublegamefly@gmail.com
+
 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~ ~ ~~
 
 Halli Galli & Friends provides multiple functions:
